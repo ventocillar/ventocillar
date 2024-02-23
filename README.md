@@ -1,4 +1,4 @@
-# 🚀 Welcome to my Data Odyssey!
+# 🚀 Hi, I am Renato!
 
 ## 🧠 Social Data Scientist | 🌐 Political Economist | 📊 Visual Storyteller
 
