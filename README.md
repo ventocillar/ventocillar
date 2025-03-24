@@ -22,12 +22,3 @@ Got an idea that combines data with a bold narrative? I'm all ears! Whether you'
 
 [LinkedIn](https://www.linkedin.com/in/renato-ventocilla-franco-b341b715b/) | [Email](ventocillarenato@gmail.com) |
 
-
-### Let's Connect & Create!
-Got an idea that intertwines data with a daring narrative? I'm all ears! Whether you're a data enthusiast, a policy pundit, or just someone who loves a good chart, I am all open to do something memorable.
-
-🔗 [LinkedIn](https://www.linkedin.com/in/renato-ventocilla-franco-b341b715b/) | 📩 [Email](ventocillarenato@gmail.com) |
-
----
-
-"Crafting unorthodox tales from orthodox data."
